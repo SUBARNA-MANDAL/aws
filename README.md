@@ -1,1 +1,1 @@
-<img src="WhatsApp Image 2024-02-06 at 21.00.21_088c8d34.jpg" align="center">
+<img src="WhatsApp Image 2024-02-06 at 21.00.21_088c8d34.jpg" align="middle">
